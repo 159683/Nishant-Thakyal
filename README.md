@@ -19,6 +19,6 @@ SolidWorks • ANSYS Discovery • AutoCAD • OnShape • Python (Learning)
 - Aerospace Environmental Simulation Systems
 
 📫 thakyal56@gmail.com   
-📞 Phone: +91 6006334164  
+📞 +91 6006334164  
 🔗 www.linkedin.com/in/nishant_thakyal
 🌍 Noida, India 
