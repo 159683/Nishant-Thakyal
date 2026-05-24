@@ -20,5 +20,4 @@ SolidWorks • ANSYS Discovery • AutoCAD • OnShape • Python (Learning)
 
 📫 thakyal56@gmail.com   
 📞 +91 6006334164  
-🔗 www.linkedin.com/in/nishant_thakyal
-🌍 Noida, India 
+🔗 www.linkedin.com/in/nishant_thakyal 
